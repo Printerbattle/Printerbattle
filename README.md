@@ -1,4 +1,5 @@
-## Hi there 👋
+## ![imagen](https://github.com/user-attachments/assets/288afdf6-a16e-4dee-af6c-178ad9940d2d)
+
 
 <!--
 **Printerbattle/Printerbattle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
