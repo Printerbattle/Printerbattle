@@ -1,6 +1,6 @@
 [crow](https://www.google.com/url?sa=i&url=https%3A%2F%2Fin.pinterest.com%2Fpin%2F735705289166405652%2F&psig=AOvVaw3OD_sH6mDDPCV0t9J3G9kv&ust=1746286148290000&source=images&opi=89978449), [peak](https://youtu.be/gkC-oiTmOZA) and more [peak](https://youtu.be/qe1zSeX_HA4) heh!!!!
 
-![vittorino-811](https://github.com/user-attachments/assets/7ac26d16-1d21-40c1-bb28-4bef677ed5fe) ![tumblr_c68eb8913e05adf97ee06d138041bc4f_3a82a4b6_400](https://github.com/user-attachments/assets/e063ed86-cf43-45ab-a75b-97276cf0867b)
+![tumblr_c68eb8913e05adf97ee06d138041bc4f_3a82a4b6_400](https://github.com/user-attachments/assets/e063ed86-cf43-45ab-a75b-97276cf0867b)
 
 
 
