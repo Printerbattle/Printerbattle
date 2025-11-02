@@ -1,7 +1,8 @@
-                                                       "To Be Let Unfurnished" 
+                                                       "Amongst the Chrysanthemums" 
 
 
-<img width="1200" height="675" alt="imagen" src="https://github.com/user-attachments/assets/aca68ed1-1160-41b4-9d92-3874e3279576" />
+<img width="1200" height="855" alt="imagen" src="https://github.com/user-attachments/assets/8b1c2a7e-20dd-475e-a58e-f38223ed5ff6" />
+
 
 
 
