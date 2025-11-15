@@ -1,7 +1,8 @@
-                                                       "Family Of Cats In The Garden" 
+                                                       "Cats with Dolls"
 
 
-![family-of-cats-in-the-garden-digital-remastered-edition-louis-wain](https://github.com/user-attachments/assets/cfe31af7-18ca-4e25-af20-6b0fe7d09ee8) 
+<img width="1200" height="911" alt="imagen" src="https://github.com/user-attachments/assets/4ff89b26-1bc8-4355-81b5-f9f39255af28" />
+
 
 
 
