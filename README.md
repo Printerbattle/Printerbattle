@@ -13,9 +13,9 @@
 
 
 
-* <img width="20" height="20" alt="imagen" src="https://github.com/user-attachments/assets/bfae9725-51be-41f4-a9a2-ddac99b9ea1f" /> _I love a lot interacting with people, but im often too shy or skittish to even try, yet when i do try chatting with someone, i might come out as loud, annoying or even weird, so please bear with me and tell me when you dont like something i do or say!_
+* <img width="20" height="20" alt="imagen" src="https://github.com/user-attachments/assets/85fbcfa4-906d-4071-ad73-acb99f034069" /> _I love a lot interacting with people, but im often too shy or skittish to even try, yet when i do try chatting with someone, i might come out as loud, annoying or even weird, so please bear with me and tell me when you dont like something i do or say!_
 
-* <img width="20" height="20" alt="imagen" src="https://github.com/user-attachments/assets/1b13593b-a274-4933-913d-95e2d065eb90" /> _English is not my first language, spanish is! so i might have bad grammar or jumble words often. I will also ask about the meaning of a word when i don't know/never have heard about it._
+* <img width="20" height="20" alt="imagen" src="https://github.com/user-attachments/assets/6d336501-84e1-4300-adcd-16f5fcc3d9dd" /> _English is not my first language, spanish is! so i might have bad grammar or jumble words often. I will also ask about the meaning of a word when i don't know/never have heard about it._
 
 * <img width="20" height="20" alt="imagen" src="https://github.com/user-attachments/assets/2e843bc2-76db-435f-99f6-09bf992ec5ba" /> _I usually take my time processing things that i don't understand, so please don't rush or annoy me for it, it'll just get me overwhelmed._
 
