@@ -21,11 +21,12 @@
 
 * <img width="20" height="20" alt="imagen" src="https://github.com/user-attachments/assets/2c7beac3-a054-4e4e-93f9-785a3a6aa7f9" /> _I get overwhelmed, upset or distressed very easily, often without a reason. But if i have a reason, i will tell if i have words to express myself._
 
-* <img width="20" height="20" alt="imagen" src="https://github.com/user-attachments/assets/260494ef-6ba3-4187-8548-91cf428b9564" /> Proud snail pet father or wtv🤣🤣🤣🤣
+* <img width="20" height="20" alt="imagen" src="https://github.com/user-attachments/assets/260494ef-6ba3-4187-8548-91cf428b9564" /> thank you for this masterpiece esonjuno8 and credits to u ,drooolll🤣🤣🤣🤣
 
 
 
-  <img width="474" height="375" alt="imagen" src="https://github.com/user-attachments/assets/489224e5-3021-415e-80d1-625c743f6288" />
+  <img width="1649" height="911" alt="imagen" src="https://github.com/user-attachments/assets/e1f47d88-3872-4261-8e50-69fe577d46ed" />
+
 
 
 
